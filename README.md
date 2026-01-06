@@ -16,9 +16,9 @@ Saya tertarik pada:
 - Network & Server Administration
 - IoT dan Embedded System
 
+---
 ###   NGAPAIN NGODING MENDING SCROL FESNUK   ###
 ##  vibeenjoyer  ##
-
 ---
 
 ## 🛠️ What I'm Learning
